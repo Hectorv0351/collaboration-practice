@@ -6,7 +6,7 @@
 #### 6
 #### 7 If you wish to defeat me train for another 1000 years
 #### 8
-#### 9 Github is really good
+#### 9 Github is really awesome
 #### 10
 #### 11
 #### 12
