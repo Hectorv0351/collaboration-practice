@@ -4,7 +4,7 @@
 #### 4
 #### 5
 #### 6
-#### 7
+#### 7 If you wish to defeat me train for another 1000 years
 #### 8
 #### 9
 #### 10
